@@ -29,4 +29,4 @@
 
 ## كيفية الاتصال
 - [LinkedIn](https://www.linkedin.com/in/yourprofile)
-- البريد الإلكتروني: [amgdnor339@gmail.com](mailto:amgdnor339@gmail.com)
+- [amgdnor339@gmail.com](mailto:amgdnor339@gmail.com)
